@@ -1,0 +1,1 @@
+https://www.figma.com/file/IOgZdl8Y1jsBU2H6KpSLDo/The-Blog---A-Web-Personal-Blog-(Community)?type=design&node-id=614-352&mode=design&t=uzktS3P7X9l1J5fD-0
